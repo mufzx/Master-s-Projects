@@ -1,1 +1,1 @@
-# Master-s-Projects
+Academic and Professional Projects
